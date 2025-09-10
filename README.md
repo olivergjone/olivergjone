@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋Im Oliver
 
 🔭 I’m currently working on coding at UIA, Kristiansand
 
