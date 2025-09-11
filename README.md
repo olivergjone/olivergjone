@@ -8,7 +8,7 @@
 
 🤔 I’m looking for help with coding at UIA, Kristiansand
 
-💬 Ask me about fotball
+💬 Ask me about football
 
 📫 How to reach me: oliverg@uia.no
 
